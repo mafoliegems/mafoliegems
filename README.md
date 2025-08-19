@@ -1,4 +1,4 @@
-# Hi, I’m Cathy — Ma Folie Jewelry Studio
+# Hi, I’m Cathy, Founder of Ma Folie Jewelry Studio
 
 I’m a GIA-trained jewelry designer in Vancouver. At Ma Folie, I create custom and made-to-order engagement rings with sapphires, lab & natural diamonds, and rare gemstones — each piece designed from scratch around your story.
 
